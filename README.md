@@ -4,7 +4,7 @@ Too many, too long, too little, too late.
 
 Time to put pressure on all of the powers that be and demand what we want.
 
-[We demand EVERYTHING](https://github.com/the-agenda/agenda/blob/master/demands/demads.md)
+[We demand EVERYTHING](https://github.com/the-agenda/agenda/blob/master/demands/demands.md)
 
 [SAY.THEIR.NAMES](https://github.com/the-agenda/agenda/blob/master/say-their-names/say-their-names.md)
 
