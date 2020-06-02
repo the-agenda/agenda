@@ -45,6 +45,7 @@ Rap is the most popular form of music in the world. Get our artists to spread th
 
 ## TODO
 
+- We need to build a play book. The opposition has a playbook that they use, we need to put together out own
 - Flesh out [protest tactics](https://github.com/the-agenda/agenda/blob/master/tactics/protesting.md)
 - Flesh out elections with voting informattion by the state / Federal level
 - Flesh out list of demands by [state + Federal government](https://github.com/the-agenda/agenda/blob/master/demands/demads.md#federal-government)
