@@ -68,6 +68,16 @@ Time to put pressure on all of the powers that be and demand what we want.
 
 - Stop Expecting Us To Forgive You In Front Of Cameras To Make You Feel Good About Letting White People Get Away With Murder.
 
+- School to prison pipeline. There are a ton of factors that play into this, but a failing school is one of the biggest plagues in the black communities... One aspect I'd love to see is more Black men in schools as mentors and classroom management. So many schools in black neighborhoods are filled with majority white staff. And I can't blame the well-meaning Jessicas; nobody else wants to do it! Maybe offenders with misdemeanors and nonviolent crimes could do community service in elementary schools as para-professionals and get a path to earning college credits in education. On a whole we need more Black teachers!
+
+- Why are police unions so strong when labor orgs in other blue collar industries have declined for years?
+
+- Police brutality settlements shouldn't be footed by tax payers. There has to be a stronger incentive to keep cops from beating the shit out of people.
+
+- Being a police officer is a difficult job. Physically and emotionally. There should be a higher standard for hiring, more on-the-job counseling and training and ultimately, better pay. This goes the same for corrections officers.
+
+- A restructuring of civil forfeiture laws. I don't know much about it, but the fact they can arrest an innocent person, but keep their shit is insane to me.
+
 
 ## Federal Government
 1. 
